@@ -1,1 +1,1 @@
-Finding rooms and accomodations
+Finding rooms and accomodations on online 
